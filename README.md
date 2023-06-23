@@ -1,0 +1,1 @@
+We are a student group interested in building a community of people collaborating together to mitigate the risks that increasingly capable AI brings to the world.
